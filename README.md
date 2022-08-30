@@ -1,1 +1,0 @@
-# aishiteruteam.github.io
